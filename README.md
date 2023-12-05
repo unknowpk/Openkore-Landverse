@@ -10,4 +10,5 @@ I give you the download link.
 
 Contact us on Discord unknowpk_72328
 
-![image](https://github.com/unknowpk/Openkore-Landverse/assets/147792012/19701602-5f05-445e-82c2-8835a95d75a2)
+
+![Openkore X0](https://github.com/unknowpk/Openkore-Landverse/assets/147792012/77b005e4-5bbe-42a1-b2b5-7602da8a53cd)

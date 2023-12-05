@@ -8,7 +8,7 @@ It's not free, don't ask how to do it.
 Please donate to me.
 I give you the download link.
 
-Contact us on Discord unknowpk_72328
+Contact us on Discord [unknowpk_72328](https://discord.gg/k7wNjafNM8)
 
 
 ![Openkore X0](https://github.com/unknowpk/Openkore-Landverse/assets/147792012/77b005e4-5bbe-42a1-b2b5-7602da8a53cd)
